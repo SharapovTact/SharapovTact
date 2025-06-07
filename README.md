@@ -9,4 +9,4 @@
 ### Контакты
 [Telegram](https://t.me/Sharapor_Navy)
 [Telegram Channel](https://t.me/sharapor)
-[Discord](.sharapov)
+[Discord](https://discord.com/users/.sharapov)
